@@ -1,0 +1,1 @@
+# magistermanagement.github.io
